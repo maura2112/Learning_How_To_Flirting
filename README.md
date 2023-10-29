@@ -1,5 +1,6 @@
 # Learning_How_To_Flirting
-### Giáo trình tán gái 7 chương 
+### Giáo trình tán gái 7 chương
+(Nguồn: Không nhớ nữa)
 # Chương 1
 - Định Nghĩa, cấu trúc tâm lý của gái.
 # Chương 2
